@@ -1,4 +1,4 @@
-
+Enhance Adobe InDesign for macOS with secure Adobe InDesign for macOS Script | shortcut customization + color correction, the #1 script. Includes shortcut customization and color
 
 
 
